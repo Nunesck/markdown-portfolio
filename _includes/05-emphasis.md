@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+I'm _talkative_ and _empathetic_. _Trustworthy_ and a _good friend_. I'm _obsessed_ with **art**, **learning** and **discovering**. It's about time to master all the tools I have, so we can build a better world together. (I'm trying to improve my english aswell)
